@@ -1,11 +1,9 @@
 # On Crimes against Humanity and the Banality of Evil
 
-From Github (need to adjust US crimes to ICC standards as written in the first outline): Human abduction, forced labor, family separation, sleep deprivation, dream torture, all enabled by a psychology Carter described as malaise that has, left unattended for nearly 50 years, descended into Nazi like institutionalized Nihilism. End essay with an allusion to the modernization of lies that made this all possible - digital fraud.
-
 Thesis: Per Hannah Arendt: evil can be committed by ordinary people, not just monsters or fanatics.
 
 Main points:
-- Intro, restate crimes against humanity as "0" essay's indictments.
+- Intro, restate crimes against humanity per "0-on-ideology" essay's indictments.
 - Most cops and FBI agents are good people.
     - However, several FBI agents and cops have at various times communicated directly to me, presumably knowing I'm being filmed, defamed, and used for medical research without my consent being sought, all without being able to detain me themselves as per lacking mental capacity such to allow - even colloquially - the medical research to be seen as anything but unethical, if not illegal, and purposefully not bringing this up during communications, if not (ab)using the fifth ammendment when asked.
         - Add video clips, somehow
@@ -13,7 +11,7 @@ Main points:
     - However, my parents, one of whom was a nuero pediatrician, have willingly involved themselves in both medical malpractice as well as fraudulent concealment of this, as though that were normal.
     - Perhaps they should be forgiven as they may consider this an opportunity at custody of grand children, but, perhaps they could be asked why they haven't looked into this further as their grand children grow older.
 - Most people in the "media" - news, movies, music, television, books - are good people.
-    - However, many in the media - with various forms of recognition - have either been "duped" or willingly participated in various forms of media production which I believe were meant to distract myself and others from creating a proper legal debate in actual civil or criminal court while the statute of limitations on the most veriable offense - medical malpractice - could pass, in a global act of fraudulent concealment via media ownership and influence.
+    - However, many in the media - with various forms of recognition - have either been "duped" or willingly participated in various forms of media production which I believe were meant to distract myself and others from creating a proper legal debate in actual civil or criminal court while the statute of limitations on the most verifiable offense - medical malpractice - could pass, in a global act of fraudulent concealment via media ownership and influence.
     - Reference _Therenstadt_ film, it's production a year before the war's end and at the start of the attempt to conceal the realities of the Holocaust, and if the Nazis could have down that before they made the Ghettos into an avenue for the Camps, they would've
     - _Befehlsnotstand_: "fame fucking" as the new "just following orders"
         - Arendt described Eichmann as a beuracrat, someone who joined the Nazi party not seeking genocide, but just seeking a vocation to define themselves as
