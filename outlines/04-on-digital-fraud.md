@@ -4,6 +4,20 @@ From github issue: Outlining the pathway to awareness of digital fraud as the ut
 
 Thesis: Digital fraud allows a new form of denial of criminal behavior with all kinds of dynamics lending itself to both an allowance of as well as covering up of crimes against humanity, which my perpetrators have employed systemically, turning the FBI - the authority structure that should be in charge of defending against digital fraud, who now rely on perpetrating it via "spyware" - into the neo-Gestapo, and begging a question as old as Ancient Rome: "Quis custodiet ipsos custodes?", or, "who watches the watchmen?"
 
+Intro quote:
+
+>> We're not scaremongering
+>> This is really happening, happening
+>>
+>> Mobiles skwerking, mobiles chirping
+>> Take the money and run
+>> Take the money and run, take the money
+>>
+>> Here I'm allowed
+>> Everything all of the time
+>>
+>> - _Idioteque_ by Radiohead, 2000
+
 Main Points / structure:
 - Digital fraud was used to both widthold the truth from me, as well as likely give the appearance that I knew the truth the whole time, making others think I was doing this to myself.
     - I mean, did you see what I was wearing? I must have been asking for this. And look, over several years I had the audacity to find hope in entertainment media, and all alongside a lack of change of my circumstances - I must be enjoying this!
