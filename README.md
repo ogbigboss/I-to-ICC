@@ -12,4 +12,4 @@ ToC:
 
 Essays 0 - 4: The base arguments for this fitting the ICC's standard
 Essays 5-10: Postulations furthering why this happened and why the ICC must act
-Essay 11: Maybe we could do something else here idk, equal pay, reinstate abortion rights via privacy, give these child Feds a better hero than a corruption of their own leadership - like an adult identity that pays them enough to avoid "just following orders"
+Essay 11: Maybe we could do something else here idk, equal pay, reinstate abortion rights via privacy, give these child Feds a better hero than a corruption of their own leadership into a mafia with a standard of "la nascosta amica nostra" - like an adult identity that pays them enough to avoid "just following orders"
