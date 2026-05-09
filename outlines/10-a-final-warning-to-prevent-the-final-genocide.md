@@ -2,7 +2,7 @@
 
 From Github Issue: The ICC must act to correct this before the worst happens - an undoing of their original purpose in the drowning tide of institutionalized liberal narcissism / edgelordism.
 
-Curveball thesis: I originally set to write this in early April, weeks before former FBI Director James Comey was indicted in the final days of that month. I am hoping his trial, should it begin in July, will cover enough ground here such that the ICC does not need to act, nor in the future will not come to regret their inaction. For that to seem permissible in the eyes of the victims of the potential Hollywood Holocaust this has enabled, I have a few requirements and I hope the ICC will agree.
+Curveball thesis: I originally set to write this in early April, weeks before former FBI Director James Comey was indicted in the final days of that month. I am hoping his trial, should it begin in July, will cover enough ground here such that the ICC does not need to act, nor in the future will come to regret their inaction. For that to seem permissible in the eyes of the victims of the potential Hollywood Holocaust this has enabled, I have a few requirements and I hope the ICC will agree.
 
 Main points / requirements:
 - Cover the issue of civic institution led medical malpractice, including a public release of the research
