@@ -8,4 +8,4 @@ Main points / requirements:
 - Cover the issue of civic institution led medical malpractice, including a public release of the research
 - Cover the issue of corruption of court processes via legal discipline
 - Cover the issue of using the media to legitimize illigetimate legal approaches (this may be the most important thing to prevent the Hollywood Holocaust, next to)
-- Cover to a definitive technical degree the likelihood, if not proof, of various forms of communications fraud, led by digital fraud, and push societies towards better privacy and digital laws for a safer future
+- Cover to a definitive technical degree the likelihood, if not proof, of various forms of communications fraud, led by digital fraud as well as the possible use of "stingray" (or cell site simulator) devices, and push societies towards better privacy and digital laws for a safer and more independent society
