@@ -1,6 +1,6 @@
 # DID or Dissociative Identity Disorder is not real in my opinion nor am I playing a trick
 
-### No I am not playing a trick to get famous, my abductors are doing this for their own fame or vainglory
+### No I am not playing a trick with email or other types of communications to get famous, my abductors are doing this for their own fame or vainglory
 
 The idea that I might have done any of this on purpose - namely not respond to messages I am not receiving, or devise some technical method to both do so and provide evidence that I am not - is patently false. Plainly speaking, it would be an action that would lack any realistic motive on my side. Even if fame were my goal, wouldn't I better achieve that by ending this situation if I could? Fame is not my goal, freedom is, and at any rate, neither would be achieved via my playing a "trick."
 
@@ -10,7 +10,7 @@ However, for those that I call my abductors, blocking my communications would se
 
 [DID is very intriguing in Hollywood settings, which this may be. This is why I acted in a manner which could be diagnosed as such, particularly in 2022, to try and generate an in person confrontation with the people I feel abducted me for the purposes of a false diagnosis. Their lack of an in person confrontation past the point of a SoL is more telling on their part than any claims that I may have DID or was purposefully "simulating" it. Even if I was, why would medical researchers allow it to continue without treatment or confrontation, and how would that not constitute harm if not intentional harm on their part?]
 
-[M. Knight Shyamalan - a prominent Indian American in Hollywood - in 2016 made a film called _Split_ which features a character played by James McAvoy with a violent form of DID. Using this movie as a point of comparison / conversation would allow an avenue for my abductors to ride the coat tails of Mr. Shyamalan's career, as well as use him as a "token" to prevent this from seeming racist (Jeffrey Lieberman may be in need of that) while also bolstering my abductors' Hollywood ambitions.]
+[M. Night Shyamalan - a prominent Indian American in Hollywood - in 2016 made a film called _Split_ which features a character played by James McAvoy with a violent form of DID. Using this movie as a point of comparison / conversation would allow an avenue for my abductors to ride the coat tails of Mr. Shyamalan's career, as well as use him as a "token" to prevent this from seeming racist (Jeffrey Lieberman may be in need of that) while also bolstering my abductors' Hollywood ambitions.]
 
 ### DID as a shield from rascism or as the weaponization of identity politics in an age where it failed to secure electoral victories
 
