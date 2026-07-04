@@ -30,6 +30,20 @@ I've of course already emotionally prepared for this moment: I'm only going to r
 
 If my abductors do this days before the statute of limitations passes, and with potential legal support present in order to gaslight them as well as me, this would be a way to pursue fraudulent concealment via gaslighting by perpetuating a lie in front of those that would otherwise legally support me, provided what is holding them back no is some sort of "no contact" contract.
 
+#### "Final Scene" Epilogue: My Abductor's Payoff - the Paperwork Game's Punchline
+
+A big purpose of the above "final scene" is to paint me as the author of fraud that was actually my abductor's doing, and use emotional gaslighting combined with years of constructed social deprivation and other purposeful denials of Maslow's hierarchy of needs to make me too emotionally incapable of defending myself to the point of painting me as unreliable to anyone who was sympathetic to me. While this is a lot to expect, they also did spend 4 years socially depriving me and psychologically abusing me, so it's not like they haven't put in the effort.
+
+After this scene, and after the statute of limitations, my abductors will finally give me the medical research, and more.
+
+Upon my sharing any of this information however I do so, my abductors would claim that any "paperwork" I have was actually fabricated with tools like Photoshop, knowing they can get every institution that could prove it - the FBI, the NYSPI, Columbia University, the township of Montclair NJ, et al - to lie and claim the paperwork as fabrication so long as I could not sue with it per se and force them to lie under oath, which is why the need to defame me for the fraud they committed is so crucial for them.
+
+This is the payoff, the punchline of their "paperwork game," or why they created so much paperwork proving the farcity of this situation as well as my innocence, including the medical research itself: they wish to defame and neuter me from all emotional, legal, and financial support, and then finally give me all the written materials that could prove my innocence, but only in a situation where I would not have the litigative support to prove it, and possibly in a way that judges would be reluctant to hear a per se lawsuit due to the gossip (though I'm also presuming my abductors were relying on me being too emotionally "broken" after 4 plus years of psychological abuse on their part to even be able to sue per se) which would hurt a judge's reputation in the internal communities they rely on to maintain such a thing.
+
+And all so my abductors can laugh at me about how powerful they are, rather than use that power for society's benefit as it is implied, and likely to make jokes about how they recreated Soviet era USSR "show trials" in a reality TV format, right here in the country that won the cold war, the US of A, using KGB-inspired fraudulent documentation in the format of email hacking and IMAP connections to plant false emails at their control.
+
+This is why the KGB-esque false accusation was constructed around a car theft: my abductors wanted to laugh at me after they got everyone to think I would do such a thing, and to bully me on the humour that I am actually innocent, and it is provable, but no one would believe me. And all for a joke to demonstrate how powerful they were, and how perverse the idea of ideology is to power itself such to use the tactics of oppressors they publicly denounce, similar to an O'Brien from Orwell's _1984_, but this time there is no O'Brien, and the rats in the cage give the speech.
+
 ### How I am presuming an SoL date despite not being told of the medical research itself: a timeline
 
 #### Late November, 2023
